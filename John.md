@@ -43,3 +43,18 @@ existed before him. John recognized Jesus so Jesus would be shown to the world. 
 before baptizing with water. John saw the spirit in the form of a dove fall on Jesus.
 Jesus will baptize with the Holy Spirit. John, the writer of the gospel, not John the
 Baptist, saw the works of Jesus and testified that Jesus is the son of God.
+
+[1: 35-42]
+> The next day John the Baptist was with two of his disciples. John looked as Jesus walked,
+and said "Behold the lamb of God." John's disciples heard what John had said and followed
+Jesus. Jesus turned and saw them following him and asked them what they were looking for.
+They referred to him as "Teacher" and asked him where he was saying. Jesus told them to
+come with and they'll see. They went with him and stayed with him that day because it was
+about the tenth hour<sup>*</sup>.
+
+> One of the two that followed him as Andrew, Simon Peter's brother. Andrew found his
+brother Simon and told him, "We have found the Christ." Andrew brought Simon to Jesus, and
+Jesus looked at him. Jesus said to him, "You are Simon son of John. You shall be called
+Cephas [which in Greek is Peter]."
+
+\* About four o'clock.
